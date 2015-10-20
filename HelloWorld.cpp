@@ -1,1 +1,1 @@
-UCLA Stinks!
+Go Beach!
